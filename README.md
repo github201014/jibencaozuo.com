@@ -1,3 +1,6 @@
 # jibencaozuo.com
 ### 纪念已经逝去的【一个人工智能的诞生】
-此存储库分享视频资源，分享链接将于 2024-10-13 20:00 之前公示。
+此存储库分享视频资源。
+下载链接：
+* https://www.123684.com/s/kPxoTd-DDnxH
+* https://www.123865.com/s/kPxoTd-DDnxH
